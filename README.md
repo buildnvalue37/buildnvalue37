@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @buildnvalue37
 - 👀 I’m interested in you
-- 🌱 I’m currently learning to practice gratitude 
-- 💞️ I’m looking to collaborate on inclusive people attraction strategies 
+- 🌱 I’m currently practicing gratitude 
+- 💞️ I’m actively collaborating on inclusive people attraction strategies 
 - 📫 How to reach me, email, linkedin, phone
 
 <!---
